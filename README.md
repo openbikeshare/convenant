@@ -89,19 +89,7 @@ Artikel 1. Provider verkrijgt met dit Convenant het recht en de plicht om bij he
 
 Partijen verklaren zich aan bovenstaande afspraken te houden en daarmee interoperabiliteit van de deelfiets in Nederland te bevorderen. Aldus overeengekomen en ondertekend
 
-Te:                             
-Op:       
+Te: Den Haag                           
+Op: 27 november 2018
 
-| Bim Bim Bikes | Handtekening |
-| --- | --- |
-| Flickbike |   |
-| Datatour / Haagsche Stadsfiets |   |
-| Mobike |   |
-| Cykl |   |
-| Emotion Sustainable Mobility |   |
-| Donkey Republic |   |
-| Urbee |   |
-| Next Bike |   |
-| De Witte Stad |   |
-| GoBike |   |
-|   |   |
+![Alt text](signatures.jpg "Signatures")
